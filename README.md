@@ -4,7 +4,7 @@ Curso : K2055
 
 Año de cursada : 2023
 
-Legajo: 
+Legajo: 209.504-0
 
 Apellido : Bove Hernandez
 
